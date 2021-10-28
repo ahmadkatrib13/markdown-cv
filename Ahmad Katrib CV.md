@@ -72,3 +72,4 @@ Leading 15-20 youth at a time from ages 12 to 16.
 Communicate comprehensive areas of improvements to management teams
 
 
+**LANGUAGES:** Arabic (Native), English (Intermediate), French (Intermediate).
